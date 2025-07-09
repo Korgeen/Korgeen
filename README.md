@@ -9,7 +9,7 @@ about mee, teehee!! :
 - 💡 , i like cars, flowers, cold tea, tigers, foxes, dogs hehee ^_^
 - 🌙 , im kind of desperate to find project moon fans as my friend / oomf
 - 🎤 , dni if youre an... dandys world fan or even secretly stalks me (heavily aimed to my friend)
-- 📞 , i get scared when interacting with people that displays their github account sometimes because how often i make those type of people uncomfortable especially the feeling when theyre a serious person
+- 📞 , i get scared when interacting with people that displays their github account sometimes because im afraid those are serious people
 - 🧩 , sometimes rlly a fun person, teehee!!..
 # ![28965d9cd856fbc2c3fb4955da7a7a7e](https://github.com/user-attachments/assets/e571113d-6aa9-4356-8762-b5afe3954993)
-## also some note, if i dont follow you back or mistaken something about you then sorryy take my apology ... ^_^
+## also some note, if i dont follow you back or mistaken something about you then sorryy take my apology... ^_^
