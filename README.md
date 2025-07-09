@@ -4,6 +4,8 @@
 about mee, teehee!! :
 - 📜 , i lovee making papecrafts or making something out of cardboards
 - 📚 , i make mistakes like always, thats why im a person that gets really busy or focused on my skins / ponies more
+- 💡 , im kind of a slow person sometimes so ehh sorry if im too slow or something o_O
+- 🌻 , if youre under 12 dni please (unless youre one of my friends)
 - 💬 , current fandoms / fandoms im mostly active > phighting, kaleidoscope (rblx), roblox args, minecraft horrors, lifesteal smp, project moon, regretevator, battle for dream island, inanimate insanity, forsaken
 - 🎶 , i prefer to listen to musics on spotify when its silent or when im actually alone
 - 💡 , i like cars, flowers, cold tea, tigers, foxes, dogs hehee ^_^
